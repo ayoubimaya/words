@@ -1,2 +1,2 @@
 # words
-<p>A place for thoughts and ideas.</p>
+<p>A place for my thoughts and ideas.</p>
