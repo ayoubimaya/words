@@ -1,0 +1,2 @@
+This idea that morality, ethics, integrity, high standards, and honesty must somehow be divorced from a relationship and be like physics that compel you no matter what is disastrous. It solves so many problems in society to say “I will not have higher standards than the person I am dealing with.”
+Now, this does not mean for you to have low standards, it means to only deal with people who have high standards
